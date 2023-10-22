@@ -1,0 +1,2 @@
+# SCC
+Southeastern Caribbean College
